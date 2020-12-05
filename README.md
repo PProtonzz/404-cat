@@ -13,6 +13,6 @@ Instagram : https://instagram.com/pprotonzz/
 
 Website for blogs/articles : https://pranavfulkari.com/
 
-Youtube : https://www.youtube.com/channel/UCW7g5W0eHOUvphZu2Bt5sEA
+Youtube : https://www.youtube.com/programmingwithpranavfulkari
 
 Linkedin : https://www.linkedin.com/in/pprotonzz/
